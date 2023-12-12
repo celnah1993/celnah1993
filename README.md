@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @celnah1993
-- 👀 I’m interested in pi pay via my sergices
+- 👀 I’m interested in pi pay via my services
 - 🌱 I’m currently learning sounding mastery
 - 💞️ I’m looking to collaborate on how my project can increase production
 - 📫 How to reach me via online social media
